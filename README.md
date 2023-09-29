@@ -1,2 +1,2 @@
-# zidan-resolusi
+# FIRST
 FIRST TIME ME
